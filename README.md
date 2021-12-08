@@ -9,3 +9,7 @@ http://www.loia.dk/carloscastaneda.html
 
 ### Encyclopedia of the path of knowledge - Russian
 https://chaparral.space/
+
+
+### Full texts
+https://archive.org/details/CarlosCastaneda_201901
